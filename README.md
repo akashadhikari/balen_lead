@@ -1,4 +1,4 @@
-## Last Update:2nd Jestha @ 9 PM
+## Last Update:5/17/2022 5:00
 
 ## Balen's Lead against Keshav Sthapit and Srijana Singh
 ![ScreenShot](final.jpg)
